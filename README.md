@@ -1,1 +1,1 @@
-Ссылка на сайт https://pavelfif.github.io/brandstyleru/
+Ссылка на сайт https://pavelfif.github.io/technomarket/
